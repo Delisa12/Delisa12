@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on OpenMC
 - 📫 How to reach me bajaidel@yahoo.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: Because i can't cook, the dish i learn to cook then becomes my everyday staple food
+- ⚡ Fun fact: Earth's rotation keeps on changing speed 
 
 <!---
 Delisa12/Delisa12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
